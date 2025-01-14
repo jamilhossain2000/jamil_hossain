@@ -38,7 +38,7 @@ Research-based analysis of supply chain factors in the steel industry, providing
 
 ## 🌍 Let's Connect
 
-- 💼 [LinkedIn]([https://www.linkedin.com/in/jamil-hossain/](https://www.linkedin.com/in/jamil-h0ssain?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))
+- 💼 ([https://www.linkedin.com/in/jamil-hossain/](https://www.linkedin.com/in/jamil-h0ssain?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))
 
 ---
 
